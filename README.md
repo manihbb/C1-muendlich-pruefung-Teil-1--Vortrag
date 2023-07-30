@@ -34,7 +34,9 @@ Werbung, Aufmerksamkeit, Kommunikation mit Kunden, Firmenimage).
 
 
 Ich habe als Thema ... gewählt. / Mein Thema ist ... / Ich möchte gern über das Thema ... sprechen.
+
 Ich habe ein Thema gewählt, über das heute sehr viel diskutiert wird.
+
 Zuerst werde ich ... / Ich möchte kurz darstellen, ... / Anschließend möchte ich auf ... eingehen. / Zum Schluss möchte ich noch auf folgende Punkte zu sprechen kommen.
+
 Ich hoffe, ich konnte Sie für das Thema interessieren. / Ich hoffe, das Thema war für Sie interessant.
-Teil
