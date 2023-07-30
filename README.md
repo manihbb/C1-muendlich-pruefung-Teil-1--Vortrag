@@ -1,4 +1,4 @@
-# C1-m-ndlich-pr-fung-Teil-1--Vortrag
+# C1-mündlich-prüfung-Teil-1--Vortrag
 
 ## Themen:
 
