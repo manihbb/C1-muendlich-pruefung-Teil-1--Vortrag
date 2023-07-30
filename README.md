@@ -26,3 +26,15 @@
 
 12. Beschreiben Sie, wie ein Unternehmen Ihrer Wahl die sozialen Medien zu seinem Vorteil nutzt (z.B.
 Werbung, Aufmerksamkeit, Kommunikation mit Kunden, Firmenimage).
+
+
+---------
+
+### Hilfreiche Redemittel für den Vortrag:
+
+
+Ich habe als Thema ... gewählt. / Mein Thema ist ... / Ich möchte gern über das Thema ... sprechen.
+Ich habe ein Thema gewählt, über das heute sehr viel diskutiert wird.
+Zuerst werde ich ... / Ich möchte kurz darstellen, ... / Anschließend möchte ich auf ... eingehen. / Zum Schluss möchte ich noch auf folgende Punkte zu sprechen kommen.
+Ich hoffe, ich konnte Sie für das Thema interessieren. / Ich hoffe, das Thema war für Sie interessant.
+Teil
